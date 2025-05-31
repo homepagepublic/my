@@ -1,4 +1,4 @@
-# 📈 Rajiv Mehta — Expert Trader & YouTuber
+# 📈 Rajiv Sahoo — Expert Trader & YouTuber
 
 Welcome to my official homepage. I'm Rajiv Mehta — a full-time trader with over 15 years of experience in equities, options, and global markets. I also share my strategies, trade breakdowns, and market psychology insights on YouTube with a growing community of 200k+ subscribers.
 
